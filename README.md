@@ -75,7 +75,7 @@ https://www.notion.so/ZIP-366cd58d9f6141edb946eb649ef481d2?pvs=4#00e4a95152074ea
 
 - **Product Manager**
     
-    > [김은혜 / 코코]
+    > 김은혜 / 코코
     > 
 - **Designer**
     
