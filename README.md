@@ -46,7 +46,7 @@
 ## 💬 설문 ZIP은 이렇게 흘러가요!
 
 실제 시연 보러가기       
-https://www.notion.so/ZIP-366cd58d9f6141edb946eb649ef481d2?pvs=4#00e4a95152074eaba479dd32cbe5d48a
+https://gainful-firewall-ab6.notion.site/90232e23f6654a19ad6048ae0e45b595
 
 ## 💥 설문 ZIP은 이런 점이 달라요!
 
